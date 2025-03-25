@@ -1,5 +1,5 @@
 # Netflix-clone
-# netflix-clone
-# Netflix-clone
-# Netflix-clone
-# netflix-clone
+
+
+
+![Uploading ScreenRecording2025-03-25215856-ezgif.com-video-to-gif-converter.gif…]()
